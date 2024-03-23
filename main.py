@@ -1,1 +1,1 @@
-tu bedzie  kod
+tu bedzie kod moze kiedys
